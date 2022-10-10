@@ -1,1 +1,0 @@
-# praksistemcerdas050tx
